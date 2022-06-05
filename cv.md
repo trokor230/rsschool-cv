@@ -23,6 +23,10 @@ Middle school education
 
 English Intermediate
 
+# About me
+
+
+
 # Contacts
 Email: vlad-korotkov-86@bk.ru 
 
